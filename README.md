@@ -17,4 +17,4 @@
 ---
 
 ### 📫 Como me encontrar:
-[Link do seu LinkedIn](https://www.linkedin.com/in/pedroaugustorf/) | [Seu E-mail](mailto:pedroaugustoribeiroferreira@gmail.com)
+[Meu LinkedIn](https://www.linkedin.com/in/pedroaugustorf/) | [Meu E-mail](mailto:pedroaugustoribeiroferreira@gmail.com)
